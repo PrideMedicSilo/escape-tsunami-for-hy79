@@ -1,4 +1,4 @@
-
+escape tsunami for brainrots rare Script is the best escape tsunami for brainrots Script, featuring anti-ban and auto-sell. Safe and powerful for all
 
 
 
